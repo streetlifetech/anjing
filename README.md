@@ -1,0 +1,2 @@
+# anjing
+Gunakan Dengan Bijak
